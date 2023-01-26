@@ -1,1 +1,1 @@
-![](https://i.postimg.cc/bwyMqCmJ/download.png | width=400)
+![](https://i.postimg.cc/bwyMqCmJ/download.png)
