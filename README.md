@@ -1,1 +1,1 @@
-![diagram](https://i.postimg.cc/bwyMqCmJ/download.png)
+![](https://i.postimg.cc/bwyMqCmJ/download.png | width=400)
